@@ -1,4 +1,4 @@
-# Class Roster Project
+# Daniel Eastwood
 
 Wednesday
 
